@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about my mind.
 - 💞️ I’m looking to collaborate on, I'm just learning!
 - 📫 joshuabjornn78@gmail.com 
-- 😄 Pronouns: 
+- 😄 Pronouns:He/Him 
 - ⚡ Fun fact: I was in the US Army for 8 years!
 
 <!---
